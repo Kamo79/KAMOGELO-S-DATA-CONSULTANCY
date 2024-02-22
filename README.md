@@ -1,0 +1,2 @@
+# KAMOGELO-S-DATA-CONSULTANCY
+First repository 
